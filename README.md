@@ -1,1 +1,1 @@
-HOSTED LINK - https://shakshi2125.github.io/Weekly_Test_5/
+HOSTED LINK - https://shakshi2125.github.io/Amazon-Page/
